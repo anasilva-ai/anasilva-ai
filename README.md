@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @anasilva-ai
+- 👀 I’m interested in java and astrophotography
+- 🌱 I’m currently learning java at SJC.
+- 💞️ I’m looking to master basics first
+- 😄 Pronouns: she/her 
